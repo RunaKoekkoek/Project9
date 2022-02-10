@@ -1,0 +1,1 @@
+Dit is het project waar ik het meeste trots op ben(mijn eerste gif toegevoegd en een slideshow). We moesten vanuit school een website maken voor het restaurant Hot Pot. Ik heb de home pagina gemaakt, de rest is door mijn klasgenoten gemaakt.
